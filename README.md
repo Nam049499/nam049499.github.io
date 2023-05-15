@@ -1,1 +1,3 @@
 # Setgodudesweb
+hi rainforest web is trash
+so i made this for new ig…
